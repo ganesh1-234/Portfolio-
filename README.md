@@ -6,8 +6,7 @@ I am a **Master’s student in Electrical and Computer Engineering** at the **Un
 
 I am actively seeking **full-time opportunities** in **Electrical Engineering, RTL Design, and VLSI domains** where I can leverage my technical knowledge and problem-solving skills to contribute meaningfully.
 
-📍 Albany, NY | 📧 [akhilreddy1607@gmail.com](mailto:akhilreddy1607@gmail.com) | 🔗 [LinkedIn](https://www.linkedin.com/in/akhil1607)
-
+📍 Albany, NY | 📧 [akhilreddy1607@gmail.
 ---
 ## Education
 
